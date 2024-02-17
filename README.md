@@ -1,2 +1,3 @@
 - 👋 Hi, I’m @gigskap
 - 👀 I’m interested in crypto news
+- thank u for everyone!!!
